@@ -1,5 +1,5 @@
-# [**Hydrogen-Producing Solar Panel**
-  |   250 liters/day = 1.5 kWh · l(H)](https://youtu.be/ZJCiwArK5qE?si=UTvDDsuOdycR454w)
+# **Hydrogen-Producing Solar Panel**
+  | [Production:    250 liters H/day = 1.5 kWh · l(H)](https://youtu.be/ZJCiwArK5qE?si=UTvDDsuOdycR454w)
 
 
 
