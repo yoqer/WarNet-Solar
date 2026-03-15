@@ -1,4 +1,5 @@
-[Hydrogen-Producing Solar Panel](https://youtu.be/ZJCiwArK5qE?si=UTvDDsuOdycR454w)
+[**Hydrogen-Producing Solar Panel**
+250 liters/day = 1.5 kWh](https://youtu.be/ZJCiwArK5qE?si=UTvDDsuOdycR454w)
 
 
 
