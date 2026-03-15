@@ -4,7 +4,7 @@
 # **Hydrogen-Producing Solar Panel**
    [Production:    250 liters H/day = 1.5 kWh · l(H)](https://youtu.be/ZJCiwArK5qE?si=UTvDDsuOdycR454w)
 
-# **Cheaper Solar Panel; [Perovskite**](https://youtu.be/ylwvGGfkaOE?si=SGCxR70wcyL9eBgF)
+# **Cheaper Solar Panel; [Perovskite](https://youtu.be/ylwvGGfkaOE?si=SGCxR70wcyL9eBgF)**
 
 
 # **Caloric Solar Panel; made of ^[Graphene**]
