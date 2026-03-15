@@ -7,7 +7,16 @@
 # **Cheaper Solar Panel; [Perovskite](https://youtu.be/ylwvGGfkaOE?si=SGCxR70wcyL9eBgF)**
 
 
-# **Caloric Solar Panel; made of ^[Graphene**]
+# **Caloric Solar Panel; made of Graphene**
+
+·[Production with Water](https://youtu.be/KqoRMN62Rgk?si=Y3BBmDRxwqeITG4h)
+
+·[Heat Pruduction](https://youtu.be/SS7-TjN3uSM?si=vD7F9V1Mp2iBQiqC)
+
+_____________________________________________________________________________________________________________________________________
+
+
+# Latest Solar Panels
 
 
 __________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
