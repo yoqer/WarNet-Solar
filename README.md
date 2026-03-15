@@ -11,12 +11,11 @@
 
 ·[Production with Water](https://youtu.be/KqoRMN62Rgk?si=Y3BBmDRxwqeITG4h)
 
-·[Heat Pruduction](https://youtu.be/SS7-TjN3uSM?si=vD7F9V1Mp2iBQiqC)
-
-_____________________________________________________________________________________________________________________________________
+·[Heat Production](https://youtu.be/SS7-TjN3uSM?si=vD7F9V1Mp2iBQiqC)
 
 
-# [Latest Solar Panels](https://youtu.be/RKCWUoneaQ4?si=UbxuksyB8ROuK9S_)
+
+ ·**[Latest Solar Panels]**(https://youtu.be/RKCWUoneaQ4?si=UbxuksyB8ROuK9S_)
 
 __________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________________
 
